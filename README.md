@@ -1,0 +1,296 @@
+# Chuck Norris
+
+- Aktivní složka nápoje Red Bull je pot Chucka Norrise.
+- Archeologové vykopali slovník pocházející z roku 3 000 před Kristem. V něm bylo slovo "Oběť" definováno znaky "Ten který potkal Chucka Norrise".
+- Až vybuchne Slunce, z celé sluneční soustavy přežije jen Chuck Norris.
+- Bermudský trojůhelník byl původně Bermudský čtverec, to bylo předtím, než mu Chuck Norris ukopl jeden roh.
+- Bin Ládin se ve skutečnosti neschovává před americkou armádou, ale před Chuck Norrisem.
+- Bůh chtěl stvořit zemi. Chuck Norris řekl: "Můžeš."
+- Byl objasněn způsob vzniku hurikánů - Chuck Norris si také občas potřebuje kýchnout.
+- Byl překonán rychlostní rekord automobilů. Neznámý pražský důchodce nemohl nastartovat svého Favorita a proto požádal kolem procházejícího Chuck Norrise, zda by ho neroztlačil.
+- Co se stane, když do Chuck Norrise narazí na cestě ve velké rychlosti kamion? Chuch Norris zavolá hasiče a sám začne s vyprošťováním řidiče.
+- Co si řekne Chuck Norris pokaždé, když se podívá do zrcadla? "Sakra, takhle bych chtěl vypadat"
+- Čas na nikoho nečeká... pokud to není Chuck Norris.
+- Dobro a zlo vymyslel Chuck Norris pro snadnější kategorizaci svých skutků.
+- Dokud bude Chuck Norris málo prdět, budou zdražovat plyn.
+- Godzilla je demoverzí návštěvy Chuck Norrise v Tokyu.
+- Hlavní příčiny smrti v USA jsou: 1. Onemocnění srdce, 2. Chuck Norris, 3. Rakovina.
+- Chuck Norris byl na místě dopadu atomové bomby. Dodnes má trochu opálenější kůži.
+- Chlapci z Kobry 11 se nebojí ničeho, jen Chucka Norrise.
+- Chucka jednou kousla kobra. Po osmi hodinách krutých bolestí chcípla.
+- Chuck Noris dokáže z lidí vymlátit nemoci. Rakovina není problém.
+- Chuck Noris je jediný člověk na světě, který má v M4 místo 30 nábojů 120 a další si domyslí.
+- Chuck Noris nemusí mít se ženou sex. Jeho nebezpečnej pohled ve znělce na orgasmus stačí.
+- Chuck Norrios sestřelí Boing 747 ve výšce 12 000 m, vzduchovkou, bez diabolek.
+- Chuck Norris byl čtvrtý mudrc, který daroval Ježíšovi dar bradky, kterou pak Ježíš nosil až do smrti. Ostatní mudrci byli velmi rozzuření, že Ježíšek upřednostňuje Chuckův dar, a zařídili, že Chuck byl vyškrtnut z Bible. Všichni tři zemřeli brzo poté na záhadná zranění, evidentně způsobené kopem s otočkou.
+- Chuck Norris byl kdysi vrchní vyjednávač pro FBI. Jeho práce spočívala v tom, že zavolal telefonem kriminálníkovi a řekl: "Tady Chuck Norris."
+- Chuck Norris byl vyloučen ze soutěží v jízdě na býku po exhibici v San Antoniu 1992, kdy na býkovi ujel 1346 mil z Texasu do Wisconsinu, aby si vyzvedl čisté povlečení.
+- Chuck Norris byl vyslán, aby předal naši kapitulaci do rukou nepřátel. Válku jsme vyhráli během tří hodin.
+- Chuck Norris by si za své seriály a výkony zasloužil minimálně 3 oscary, ale předat Chuckovi z ruky do ruky tupý kovový předmet je trošku brutální sebevražda... jenže Chuck Norris žádného Oskara za herecký výkon nikdy nedostal a ani nedostane. On to totiž nehraje.
+- Chuck Norris dal Moně Lise úsměv.
+- Chuck Norris dělá kliky bez pomoci rukou.
+- Chuck Norris dokázal, že jsme ve vesmíru sami. Před jeho první vesmírnou expedicí jsme nebyli.
+- Chuck Norris dokáže dát mat bez jediného tahu.
+- Chuck Norris dokáže dát mat i dámě.
+- Chuck Norris dokáže hranou ruky řezat diamanty.
+- Chuck Norris dokáže chytat do lasa bez smyčky.
+- Chuck Norris dokáže jednoho člověka zabít několikrát.
+- Chuck Norris dokáže jednou ranou rozbít dubový stůl. Dokáže ho však hned zase sešít jehlou a nití.
+- Chuck Norris dokáže kýchnout s otevřenýma očima.
+- Chuck Norris dokáže najít zkratku, která je současně lepší i kratší cestou.
+- Chuck Norris dokáže pálit mravence lupou. V noci.
+- Chuck Norris dokáže předběhnout svůj vlastní stín.
+- Chuck Norris dokáže udělat druhý nálev z instantní kávy.
+- Chuck Norris dokáže udělat jednou ranou z velblouda komára.
+- Chuck Norris dokáže vyhrát hru Dostihy a sázky, aniž by vlastnil jediného koně.
+- Chuck Norris dokáže zneškodnit bombu i po výbuchu.
+- Chuck Norrise je tak ostrý, že když stojí v potoce, plovoucí list se o něj rozřízne.
+- Chuck Norrise nechápe nikdo. Zato kop z otočky chápe každý.
+- Chuck Norris hrál ruskou ruletu s plně nabitou zbraní a vyhrál.
+- Chuck Norris chodí namísto do solárka do tokamaku.
+- Chuck Norris jako jediné miminko na světě oznámil ihned po porodu svým rodičům, jak se bude jmenovat.
+- Chuck Norris je častým dárcem krve pro Červený kříž. Jen ne svojí vlastní.
+- Chuck Norris jednou bojoval s jednorukým nindžou. Když si uvědomil svou výhodu, utrhl si obě ruce a jednu nohu. Druhou nohou ho pak kopem z otočky na místě zabil a utržené končetiny si přišil rezavým stanovým kolíkem a dvacítkou drátem.
+- Chuck Norris jednou kopem s otočkou udeřil protivníka tak silně, že jeho chodidlo překonalo rychlost zvuku, vrátilo se v čase a zabilo Amélii Earhartovou, když přelétala Pacifik.
+- Chuck Norris jednou kopl koně do brady. Jeho potomci jsou dnes známí jako žirafy.
+- Chuck Norris jednou nachcal Schumacherovi do nádrže. Ten od té doby vyhrává.
+- Chuck Norris jednou nakopl Bruce Leeho a přelomil ho vejpůl. Výsledek byl Jackie Chan a Jet Li.
+- Chuck Norris jednou nakopl podomního prodavače. Po telefonu.
+- Chuck Norris jednou navštívil Panenské ostrovy. Od té doby se jmenují Ostrovy.
+- Chuck Norris jednou navštívil Safari. Zvířata se naučila řídit džípy, aby se na něj mohla přijet podívat.
+- Chuck Norris jednou přežil sebevražedný atentát. On byl atentátník.
+- Chuck Norris jednou přišel o hlavu. Léčil se z toho tři dny.
+- Chuck Norris jednou snědl celou krabici pilulek na spaní. Způsobily, že mrkl.
+- Chuck Norris jednou snědl dort dřív, než mu stihli říci, že je v něm striptérka.
+- Chuck Norris jednou snědl 100 kilo hovězích steaků za hodinu, z toho 45 minut strávil sexem se servírkou.
+- Chuck Norris jednou vyzval Lance Armstronga v soutěži: "Kdo má víc varlat". Chuck Norris vyhrál s pěti.
+- Chuck Norris je jediný člověk, kterého svezl převozník Cháron zdarma - oběma směry.
+- Chuck Norris je jediný člověk, který práskne s otáčivými dveřmi.
+- Chuck Norris je jediný člověk, který ví, proč se ve slově pyramida píše tvrdé "y".
+- Chuck Norris je nejlepší v sexu. Škoda, že ho nikdy nepotřeboval.
+- Chuck Norris je první člověk, který porazil betonovou zeď v tenise.
+- Chuck Norris je přímým potomkem mistra Jody.
+- Chuck Norris je schopný fotosyntézy.
+- Chuck Norris je skutečný otec Luka Skywalkera.
+- Chuck Norris je tak drsný, že existuje Black Metal, Death Metal a Chuck Norris Metal.
+- Chuck Norris je také velký hráč. Pokud vám nevyšla čísla ve Sportce, je to proto, že sázel i Chuck Norris.
+- Chuck Norris je tak rychlý, že dokáže oběhnout Zemi a udeřit se do zad.
+- Chuck Norris je tak silný že porazí v boji i sám sebe.
+- Chuck Norris kdysi spadl do jezera s toxickým odpadem. Jezero získalo zázračné schopnosti.
+- Chuck Norris má dvě rychlosti, chůze a zabíjení, ovšem nejdou rozeznat, protože Chuck Norris zabíjí i za chůze.
+- Chuck Norris má své letní sídlo na Slunci.
+- Chuck Norris musel přestat prát své prádlo v oceánu. Tsunami zabíjelo lidi.
+- Chuck Norris musí třídit prádlo na tři hromady - bílé, barevné a krvavé.
+- Chuck Norris může driblovat ve fotbale.
+- Chuck Norris může za velké stěhování národů. Národy prchaly před ním.
+- Chuck Norris napočítal do nekonečna. Dvakrát.
+- Chuck Norris napočítal do nekonečna pozpátku. Třikrát.
+- Chuck Norris našel odjištěný granát. "Granát", pomyslel si Chuck Norris. "Chuck Norris," pomyslel si granát a raději se rychle zajistil.
+- Chuck Norris naučil šmirgl, jak být drsným.
+- Chuck Norris nečte knihy, jen je pořádně zmáčkne a dostane informace, které potřebuje.
+- Chuck Norris nechal zmizet Davida Copperfielda.
+- Chuck Norris nechává v noci rozsvícenou lampu. Není to proto, že by se bál tmy, ale proto, že se tma bojí jeho.
+- Chuck Norris nechodí do kina. Vždy ví, jak to dopadne.
+- Chuck Norris nemá bankovní úcet. Vždy jen oznámí bance, kolik potřebuje.
+- Chuck Norris neměl nikdy problém s alkoholem. Avšak alkohol má problém s Chuckem Norrisem.
+- Chuck Norris nemusí jíst. Jídlo musí Chuck Norrisovat.
+- Chuck Norris nemůže milovat. Může jen nezabíjet.
+- Chuck Norris nemyslí. On ví.
+- Chuck Norris nenechává zprávy, nechává varování.
+- Chuck Norris není chyba v matrixu, matrix je chyba v Chucku Norrisovi.
+- Chuck Norris není závislý na heroinu, heroin je závislý na Chucku Norrisovi.
+- Chuck Norris nenosí hodinky, on prostě určí kolik je hodin.
+- Chuck Norris nenosí kondom. Protože neexistuje žádná taková věc, jako ochrana před Chuckem Norrisem.
+- Chuck Norris vynalezl otazník.
+- Chuck Norris nepíše knihy. Písmena se sama zformují do slov z čiré hrůzy.
+- Chuck Norris nepíše v žádném programovacím jazyku za příkazy středníky. Považuje to za zbytečné.
+- Chuck Norris nepodléhá pravidlům. Pravidla jsou Chuck Norris.
+- Chuck Norris nezabije dvě mouchy jednou ranou... zabije všechny jednou ranou.
+- Chuck Norris nikdy nedostane infarkt. Jeho srdce není tak hloupé, aby s ním bojovalo.
+- Chuck Norris nikdy nechodí k zubaři, protože jeho zuby jsou nezničitelné. Jeho nepřátelé nikdy nechodí k zubaři, protože nemají žádné zuby.
+- Chuck Norris nikdy nespí, jen čeká.
+- Chuck Norris nosí černý opasek, ale často si k němu bere hnědé boty. Nikdo se ještě neodvážil ho na to upozornit.
+- Chuck Norris občas nechá otevřená dvířka od své ledničky. Této události se říká doba ledová.
+- Chuck Norris objel zeměkouli na rotopedu.
+- Chuck Norris používá živého chřestýše jako prezervativ.
+- Chuck Norris pronásledoval marťany až na Mars, od té doby není na Marsu život.
+- Chuck Norris prošel Mariánský příkop na jeden nádech.
+- Chuck Norris při bowlingu nemusí dávat strike, když trefí první kuželku, ostatní omdlí strachy.
+- Chuck Norris přišel jednou do non stop baru a tam vydržel chlastat až do zavíračky. A když odcházel, tak prásknul točitými dveřmi s takovou silou, až se rozbily.
+- Chuck Norris příšel o panictví dřív než jeho otec.
+- Chuck Norris rád poslouchá hudbu. Chucka Norrise poslouchají všichni.
+- Chuck Norris rozbrečel cibuli.
+- Chuck Norris rozeštval psy a kočky.
+- Chuck Norris se jednou vymočil Michaelu Schumacherovi do nádrže, od té doby Michael Schumacher vyhrává jeden závod za druhým.
+- Chuck Norris se kvalifikoval do závodů Daytona 500 maximální rychlostí 324 mil za hodinu. Bez auta.
+- Chuck Norris se měl původně objevit ve hře Street Fighter II, ale byl odstraněn, protože zmáčknutí jakéhokoliv čudlíku ho vedlo ke kopu s otočkou.
+- Chuck Norris se narodil v domě, který si sám postavil.
+- Chuck Norris se nebojí tmy. Tma se bojí Chucka Norrise.
+- Chuck Norris se nesprchuje. Zato se pořád koupe v krvi.
+- Chuck Norris se rozhodl, že bude svou moč prodávat v plechovkách. Teď se tomu říká Red Bull.
+- Chuck Norris se sekerou jednou navštívil obrovské plochy Saharských lesů...
+- Chuck Norris se zná osobně s Járou Cimrmanem.
+- Chuck Norris si dokáže olíznout vlastní loket.
+- Chuck Norris si nehraje na boha. Hraní je pro děti.
+- Chuck Norris si v KFC objednal BigMac a dostal ho.
+- Chuck Norris spí s polštářem pod pistolí.
+- Chuck Norris spí v noci se světlem. Ne že by se Chuck Norris bál tmy, ale tma se bojí Chucka Norrise.
+- Chuck Norris třídí prádlo na tři hromady - bílé, barevné a krvavé.
+- Chuck Norris umí běhat pro pivo tak rychle, že se cestou potkává.
+- Chuck Norris umí dělat bubliny z hovězích steaků.
+- Chuck Norris umí dělit nulou.
+- Chuck Norris umí mluvit Braillovým písmem.
+- Chuck Norris umí prásknout otáčivými dveřmi.
+- Chuck Norris umí rozbíjet atomy kopem z otočky.
+- Chuck Norris umí roztáhnout diamant za dva protilehlé konce a proměnit ho tak zpět v uhlík.
+- Chuck Norris umí tleskat jednou rukou.
+- Chuck Norris umí všechno, i prohrávat, když prohraje, nikdo jiný ale nevyhraje.
+- Chuck Norris umí zabíjet pohledem. I z obrázku.
+- Chuck Norris uvařil vodu v elektrické konvici, kterou předtím někdo omylem vytáhnul ze zásuvky.
+- Chuck Norrisův kop z otočky je preferovaná forma popravy v 16 státech.
+- Chuck Norris v dětství nikdy nepomočil postel. Postel se ze strachu pomočila sama.
+- Chuck Norris viděl zemské jádro. Zemské jádro není nic oproti jádru Chucka Norrise.
+- Chuck Norris vydržel v non-stop baru do zavíračky.
+- Chuck Norris vyleze na lano bez přírazu jednou rukou.
+- Chuck Norris vymyslel rakovinu, protože byl unavený ze zabíjení lidí.
+- Chuck Norris vymyslel značku Konec kruhového objezdu.
+- Chuck Norris vynalezl celé spektrum barev kromě růžové. Tu vynalezl Tom Cruise.
+- Chuck Norris vynalezl vlastní styl bojového umění. Říká se mu Chucktěsejme.
+- Chuck Norris vypije pivo i se sklenicí.
+- Chuck Norris zabil milióny svých nepřátel, ještě když byl spermie.
+- Chuck Norris zabil Mrtvé moře.
+- Chuck Norris za války sestřelil německé bojové letadlo tak, že na něj zamířil dva prsty a řekl: "Beng!"
+- Chuck Norris zemřel před 10 lety, ale Smrtka neměla odvahu mu to říct.
+- Chuck Norris zná poslední číslici čísla pí.
+- Chuck Norris zničil periodickou tabulku prvků, protože uznává pouze prvek překvapení.
+- Chuck Norris zpíval do vypnutého mikrofonu a přesto jeho zpěv všichni slyšeli.
+- Chuck Norris ztratil panictví dřív než jeho otec.
+- Chuck Norris žaluje NBC, protože Zákon a Pořádek jsou jména, která dal svojí levé a pravé noze.
+- Chuckovi nebude z toho masa špatně. Špatně bude tomu masu z Chucka Norrise.
+- Chuck vynalezl císařský řez, když se při porodu prokopl z matčina břicha.
+- Informace o tom, že Chuck Norris napočítal dvakrát "jen" do nekonečna již neni aktuální. Chuch Norris totiž napočítal i mnohem dál.
+- Jak dlouho vydrží Chuck Norris pod vodou bez dýchacího přístroje? Přesně tak dlouho, jak potřebuje.
+- Jak dosvědčuje NASA, Chuck Norris je jediným člověkem, který je pouhým okem viditelný z vesmíru.
+- Jako dítěti dali rodiče Chuckovi dětské kladívko. Chuck dal světu Stonehenge.
+- James Cameron chtěl, aby Chuck Norris hrál v Terminátorovi, ale zjistil, že by točil dokumentární film, a proto se domluvil s Arnoldem.
+- Jednou kdosi natočil Chucka Norrise, když se naštval. Nahrávka byla pojmenována Walker: Texas Chain Saw Masacre.
+- Jednou si Chuck Norris vzal dovolenou. Toto období se označuje jako velká hospodářská krize.
+- Jezdicí schody byly vynalezeny, aby mohli lidé rychleji utíkat před Chuck Norrisem.
+- Jsou tři strany síly: Temná strana síly, Světlá strana síly a Chuck Norris.
+- Kalendář Chuck Norrise po 31. Březnu pokračuje přímo na 2. Duben, protože z Chucka si nikdo apríl dělat nebude.
+- Kapitán Picard řídil Enterprise polem asteroidů až čtvrtinovým impulzem. Chuck Norris ho jasně překonal.
+- Kde je Chuck Norris, tam přestává veškerá legrace.
+- Kdo jinému jámu kopá, je u Chucka na brigádě.
+- Kdyby díky vesmírnému časovému paradoxu bojoval Chuck Norris sám se sebou, vyhrál by.
+- Když Arnold v druhém Terminátorovi říká "Já se vrátím", myslí tím, že jde požádat Chucka Norrise o pomoc.
+- Když Bůh řekl "Budiž světlo!", Chuck Norris odpověděl "Řekni prosím."
+- Když Einstein tvořil teorii relativity, opisoval z materiálů Chucka Norrise.
+- Když chtěl Bůh stvořit zemi, Chuck Norris mu řekl "Popros!"
+- Když Chuck Norris dělá shyby na hrazdě, nezvedá se. Stahuje zeměkouli dolů.
+- Když Chuck Norris hraje Monopoly, ovlivňuje aktuální světovou ekonomiku.
+- Když Chuck Norris navštívil Vatikán, papež se k němu přišel vyzpovídat.
+- Když Chuck Norris nechá otevřenou ledničku, nastane doba ledová.
+- Když Chuck Norris omdlí po střele z kulometu do mozku, máte jistotu, že to není Chuck Norris.
+- Když Chuck Norris přechází ulici, auta se musí rozhlédnout na obě strany.
+- Když Chuck Norris přijede do Číny, používá při jídle jen jednu hůlku.
+- Když Chuck Norris spadne do vody, nebude mokrý, ale voda bude Chuck Norris.
+- Když Chuck Norris škrtl zápalkou, vzniklo slunce.
+- Když Chuck Norris volá na čísla 0609 tak nic neplatí, naopak podrží telefon a peníze začnou padat ven.
+- Když Chuck Norris vypije flašku, tak i se sklem.
+- Když jde Bubák spát, každou noc se podívá pod postel, jestli tam není Chuck Norris.
+- Když je člověk v nebezpečí, přijde ho zachránit anděl strážný. Když je v nebezpečí anděl, přichází Chuck Norris.
+- Když řekne Chuck Norris, že ho něco zdrželo, vyčistil právě od zločinu Detroit.
+- Když se Chuck Norris nadýchá plutonia, plutonium do týdne zemře na ozáření.
+- Když se Chuck Norris narodil, jediný, kdo plakal, byl porodník. Nikdo nesmí beztrestně plácat Chucka Norrise přes zadek...
+- Když se říká: "nikdo není dokonalý," Chuck Norris to považuje za osobní urážku.
+- Když se v seriálu návštěvníci hovořilo o centrálním mozku lidstva, byl tím myšlen Chuck Norris.
+- Když si Chuck Norris odplivl, vznikly oceány a moře.
+- Když si nevíte rady, řekněte si:"Co by udělal Chuck Norris?" A pak to vzdejte, protože nemáte takovou sílu.
+- Když stojí nahý Chuck Norris před zrcadlem, zrcadlo se vzruší.
+- Když to vypadá, že si Chuck Norris chce podřezat žíly, tak jen brousí nože.
+- Když vidíš Chucka Norrise, on tebe vidí také. Když ho nevidíš, možná tě od smrti dělí jen pár vteřin.
+- Metro je vlak, který se ze strachu před Chuck Norrisem ukryl do podzemí.
+- Miss World pravidelně vyhrává Chuck Norris, pokaždé v jiném převleku.
+- Místo toho, aby se Chuck Norris narodil normální cestou, rozhodl se z těla matky proboxovat ven. Tak byl objevem císařský řez.
+- Mistr Joda je učitelem všech rytířů jedi, Chuck Norris je učitelem mistra Jody.
+- Moderní čistící prostředky uvádějí, že zničí až 99.9% mikrobů. Chuck Norris zničí 100% čehokoliv se mu zachce.
+- Myslíte si, že mátě hodně problémů? Dokud nenaštvete Chucka Norrise, nevíte, co je to opravdový problém.
+- Na konci dílu Walker: Texas Ranger nejede seznam herců, ale seznam úmrtí během natáčení.
+- Nálada Chucka Norrise má vliv na počasí.
+- Na Nagasaki nikdy žádná bomba nespadla, to jen Chuck Norris vyskočil z letadla a udeřil do země.
+- Na párty rozmlouvají čtyři úspěšní muži. První říká: "Já jsem milionář." Druhý na to: "Já jsem miliardář." Třetí se usměje a říká: "Omluvte mne pánové, že jsem se vám dosud nepředstavil, jsem Bill Gates." Všichni jsou ohromeni, až na čtvrtého muže, ten s klidným hlasem prohlásí: "Já jsem Chuck Norris."
+- Na poslední stránce Guinnessovy knihy světových rekordů je malým písmem uvedeno, že všechny rekordy drží Chuck Norris, zde uvedení lidé jsou ti, co jsou mu nejblíž.
+- Na světě nejsou lesbičky, jen ženy, které ještě neviděly Chucka Norrise.
+- Na Zemi létá tolik UFO proto, protože i ufoni chtějí Chuckův podpis.
+- Neexistují lesbičky - jsou pouze ženy, které ještě nikdy neviděly Chucka Norrise.
+- Nejbezpečnější heslo na světě je ChuckNorris
+- Nejsmutnější moment pro dítě není, když se dozví že Ježíšek není reálný, ale když se dozví, že Chuck Norris reálny je.
+- Nejsou žádné odlišné rasy, jenom země plné lidí, které Chuck Norris zbil do různých odstínů černé, modré a žluté.
+- Někdo dokáže ohnout lžíci myslí. Chuck Norris dokáže ohnout mysl lžící.
+- Nekonečno neexistovalo do bitky Chucka Norrise s osmičkou.
+- Někteří lidé mají jednu mozkovou hemisféru větší než druhou. Chuck Norris má větší obě.
+- Někteří lidé nosí pyžamo se Supermanem. Superman nosí pyžamo s Chuckem Norrisem.
+- Německo ve skutečnosti vyhrálo první světovou válku, dohodové mocnosti pak vyslaly Chuck Norrise dojednat s němci co nejvýhodnější podmínky své kapitulace.
+- Newtonův třetí zákon je neplatný, když tvrdí, že pro každou akci je zde srovnatelná a opačná reakce, neexistuje žádná síla, která by se rovnala Chuckovu kopu s otočkou.
+- Nezáleží na tom, jestli je ryba němá. Chuck Norris ji dokáže přinutit zpívat.
+- Než zemře někdo významný, oznámí mu to sám Bůh. Bohu to oznámí Chuck Norris.
+- Obrana planety Země před útokem nepřátelských mimožemšťanů se jmenuje Chuck Norris.
+- Obyvatelé Vaduzu se každý den ve tři hodiny ráno vzdávají Chucku Norrisovi.
+- Okolní vesmír existuje, protože se bojí být na stejné planetě jako Chuck Norris.
+- Ostatní lidé žvýkají žvýkačku, Chuck Norris žvýká hokejové puky.
+- Ozzy Osbourne ukusuje hlavy netopýrům, Chuck Norris to dělá tygrům usurijským.
+- Pee Wee Herman byl zatčen za masturbování na veřejnosti. Chuck Norris za masturbování na veřejnosti dostal cenu.
+- Pero je mocnější než meč. Ale pouze, pokud meč nedrží v ruce Chuck Norris.
+- Pero je mocnější zbraň než meč - pokud ho drží v ruce Chuck Norris.
+- Podle Bible stvořil Bůh vesmír za šest dnů. Předtím Chuck Norris luskl prsty a stvořil Boha.
+- Pokud má Chuck Norris zpoždění, čas by měl radši sakra zpomalit.
+- Pokud ti Chuck Norris ukáže prostředníček, ukazuje ti kolik sekund života ti zbývá.
+- Policie označuje kohokoliv útočícího na Chucka Norrise kódem 45-11 - sebevražda.
+- Pouze jediný uživatel dokáže více než administrator. Chuck Norris
+- Proč se krokodýlové schovávají ve vodě a ne na stromech? Protože jim orangutani připomínají Chucka Norrise.
+- Prvních několik milionů svých protivníků Chuck Norris pomlátil už jako spermie.
+- První zákon termodynamiky říká, že energie nemůže být ani vytvořena, ani zničena. Pokud nepotká Chucka Norrise.
+- Před tisíci lety potkal Chuck Norris medvěda. Ten před ním utekl na sever do Arktidy. Byl tak vystrašen že všichni jeho potomci mají bílou srst.
+- Při tajné policejní akci si Chuck připíná svůj odznak přímo na nahou hruď.
+- Původní název pro film Alien vs. Predator byl Alien and Predator vs Chuck Norris. Film byl zrušen krátce po předprodukci. Nikdo by neplatil devět dolarů, aby viděl film 14 vteřin dlouhý.
+- Scéna, ve které Chuck Norris prohraje souboj s Bruce Leem, byla scéna s nejdražšímy speciálnímy efekty v historii kinematografie všech dob.
+- Setkání s Chuckem Norrisem inspirovalo Jaroslava Seiferta k veršům "Šel život, byl to samý chvat".
+- Slzy Chucka Norrise léčí rakovinu. Škoda, že nikdy neplakal.
+- Smrtka neexistuje, k mrtvým přichází Chuck Norris a říká: "Zase pozdě!"
+- Superman a Flash se utkali v závodě k hranici vesmíru, vyhrál Chuck Norris.
+- Švýcarsko je neutrální, protože čeká, na kterou stranu se přidá Chuck Norris.
+- Televizní show Survivor měla původně být o skupině lidí vysazených na ostrov s Chuckem Norrisem. Nebyli však žádní preživší a nikdo není dost odvážný, aby došel pro natočené materiály.
+- Teorie evoluce neexistuje, existuje pouze seznam živočišných druhů, které nechal Chuck Norris přežít.
+- Tep Chuck Norrise se měří v Richterově stupnici.
+- Terminátor si počítá oběti po desítkách, Chuck si počítá terminátory po stovkách.
+- Titanic se nepotopil po nárazu do ledovce. Narazil do Chucka Norrise, když si byl pro zábavu zaplavat v ledových vodách Atlantiku. Zrovna zkoušel svůj bravurní kop z otočky, když se mu do cesty připletl Titanic, kterému svým kopem způsobil trhlinu na boku.
+- Titanic ve skutečnosti nenarazil do ledovce, ale do kostky ledu, kterou Chuck Norris vyhodil po dopití svého drinku.
+- To, co po dopadu zabilo dinosaury nebyl asteroid. Chuck Norris se jen rozhodl nezastavit.
+- V Bibli přeměnil Ježíš vodu ve víno. Ale pak Chuck Norris přeměnil víno na pivo.
+- Vědci odhadují, že energie uvolněná během Velkého Třesku je zhruba srovnatelná s energií uvolněnou při Chuckově kopu s otočkou.
+- Vědci se dodnes nemohou shodnou na důvodu vymření neandrtálců. Podle dochovaných jeskynních maleb byla poslední činnost, při které byli kdy spatřeni vyprávění vtipů o Chuck Norrisovi.
+- Vědci tvrdí, že nikdo nemůže přežít v černé díře. Chuck Norris nesouhlasí s ohledem na to, že si je dává k snídani. "Chutnají jako kuřata."
+- Velká Čínská zeď byla původně postavena proto, aby zabránila Chuck Norrisovi vstoupit do Číny. Žalostně selhala.
+- Vetřelci existují, ale dobře vědí, že na planetu s Chuckem Norrisem nemají ani vkročit.
+- Většina lidí má 23 párů chromozómů. Chuck jich má 72 a všechny jsou smrtelné.
+- Většina lidí ví, že Descarte řekl: "Myslím, proto jsem." Co ale většina lidí neví, je to, že výrok pokračuje: "se vždy bál Chucka Norrise."
+- Ve válce světů marťané planetu Zemi ve skutečnosti ovládli, potom ale narazili na Chuck Norrise.
+- Viděl už někdo z vás Chuck Norrise na vlastní oči? Ne? Tak vidíte, jak je dobře maskován.
+- V Iráku nebyly nalezeny žadné zbraně hromadného ničení. Chuck Norris žije v Oklahomě.
+- Víte, proč Chuck Noris nemá děti? Bůh může být na světe jen jeden.
+- Víte, proč Chuck Norris nehrál ve filmu Titanic? Protože by všechny zachránil.
+- Víte proč se Chuck neholí? Protože ještě nevynalezli břitvu tvrdší než jeho vousy.
+- Voda se vaří rychleji, když se na ni Chuck Norris dívá.
+- V průměrném obývacím pokoji je 1242 věcí, pomocí nichž by Vás Chuck Norris dokázal zabít. Včetně samotného pokoje.
+- V prvním díle Jurského parku Tyrannosaurus Rex nepronásledoval džíp. Chuck Norris pronásledoval Tyrannosaura a džíp.
+- Vrtulník byl vynalezen, když pozorovali Chucka Norrise, jak dělá osm kopů s otočkou za vteřinu.
+- V Rusku mají na armádních vysílačkách napsáno: PAMATUJ! CHUCK NORRIS NASLOUCHÁ!
+- Všechna souhvězdí připomínají výjevy ze života Chucka Norrise.
+- Vtipy o Chucku Norrisovi nejsou tak vtipné, nikdo to ale nikdy nepřizná nahlas,... Co kdyby byl poblíž Chuck Norris?.
+- Vždy, když je Chuck Norris zaneprázděn nějakou domácí prací, tak venku začne pršet. To aby mu to nebylo líto.
+- Za každým úspěšným mužem je žena, za každým mrtvým mužem je Chuck Norris.
+- Zbraně nezabíjejí, to Chuck Norris.
+- Země měla kdysi dva měsíce. S jedním ale Chuck Norris hrál golf.
+- Značka "parkování pro handicapované" neznamená, že zde mohou parkovat postižení, znamená to, že tam parkuje Chuck Norris a pokud tam zastavíte, udělá z vás handicapovaného.
+- Žádné globální oteplování neexistuje, to jen Chuck Norris přiblížil Slunce k Zemi, když mu bylo chladno.
+- Žádné vtipy o Chuck Norrisovi nejsou vtipné. Kde je Chuck Norris, tam končí veškerá legrace.
